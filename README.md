@@ -45,4 +45,4 @@ This is a tool for education only, I am not responsible for any misuse
 ### Visitors :
 ![Visitor Count](https://profile-counter.glitch.me/Whomrx666/count.svg)
 
-Good luck doing ddos
+<b>Good luck doing ddos : ]<b>
